@@ -1,4 +1,4 @@
-
+Adobe Premiere Pro for macOS automatic Template: scene-transitions & chromatic-aberration-fix offers the most advanced Adobe Premiere Pro for macOS template, with
 
 
 
